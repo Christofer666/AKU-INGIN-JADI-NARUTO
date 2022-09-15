@@ -1,0 +1,2 @@
+# AKU-INGIN-JADI-NARUTO
+EYL (Enjoy Your Life)
